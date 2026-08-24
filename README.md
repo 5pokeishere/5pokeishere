@@ -61,15 +61,15 @@ align="center"/>
    <img src="https://github.com/5pokeishere/5pokeishere/blob/main/Untitled66_20260823211938.png?raw=true" width="400" align="left"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-<h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ }}$<br>
+<h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ if u like judelow then DNI}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ hes a massive weirdo}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ chucknasty too lowk}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ tai and sharpness fans.. iwec...}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ int if u love lifesteal}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ lss4-lss6}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i miss loser duo}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ and every duo too btw}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ╭──╯ . . . . .}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ listen to Deep Swim by Windows 96 trust}}$</h4>
 
 <p align= "left">
