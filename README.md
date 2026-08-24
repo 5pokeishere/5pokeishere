@@ -14,16 +14,16 @@ WORK IN PROGRESS. IM IN HELL. HELP
  align="left"/>
  <br>
 
-<h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
+<h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ㄑ lami , she/he/any - ,,}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ cupioromantic n' pansexual }}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ minor , id rather for 22+ to dni}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ slavic — pol/eng}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ c+h always ok unless w/friends}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ whisp2int since im mostly offtab and/or afk}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ DNC! ask for inspo but never copy..}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ . . . . ╰──╮}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i miss lss5 mapicc}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i miss lss4 mapicc}}$</h4>
 
 <p align= "left">
  <img src="https://64.media.tumblr.com/cd77ee7167dd9d5bbb42040a15ca0be2/tumblr_inline_mny7s8Jsc11qz4rgp.png"
@@ -38,16 +38,16 @@ align="center"/>
    <img src="https://github.com/5pokeishere/5pokeishere/blob/main/Untitled65_20260823195835.png?raw=true" width="400" align="right"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
+<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ She looked at my wrist and she looked at a hundred thousand}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ Wrist so icy, wonder why she like me, bitch, I'm drownin'}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ In water, I just bought a Cuban, dipped it in a fountain}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show, I'm surrounded}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Bust down, bust down, bust down, bust down, bust down,}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bitch, I'm drownin'}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ I just bought a Cuban ring and dipped it in a fountain}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Chain so heavy I feel like I'm holdin' up a mountain}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show, I'm surrounded}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ╭──╯ . . . . .}}$</h4>
 
 <p align= "right">
  <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"
@@ -69,8 +69,8 @@ $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ t
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ }}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ listen to Deep Swim by Windows 96 trust}}$</h4>
 
 <p align= "left">
  <img src="https://i.postimg.cc/wBjnn846/blospa.gif"
