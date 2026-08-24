@@ -41,7 +41,7 @@ align="center"/>
 <h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ She looked at my wrist and she }}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ looked at a hundred thousand}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Wrist so icy, wonder why she like me, }}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bitch, I'm drownin'}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bitch, I'm drownin'}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ In water, I just bought a Cuban,}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ dipped it in a fountain}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show,}}$<br>
