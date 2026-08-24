@@ -5,7 +5,7 @@ WORK IN PROGRESS. IM IN HELL. HELP
  <br>
  
 <p align="center"></strong><br><a href="https://hits.sh/github.com/odyssial/"><img alt="Hits" src="https://hits.sh/github.com/5pokeishere.svg?label=murders&color=4C0D02&labelColor=BF2000"/></a></p>
-
+<br>
 <h4 align="center">
 <img src="https://64.media.tumblr.com/eaf500c3552da09c81a41ed1b7b4b7e8/981e193c1ba2a2e0-71/s540x810/bdbdb844df9655c4e8a943f77c812742450fec29.gifv"  width="500"/>
  <br>
@@ -31,7 +31,7 @@ $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ t
   <br>
 <img src="https://64.media.tumblr.com/4509094c7147b0d7525acff8ad502393/32fad5e15e5bc854-55/s2048x3072/3f439c9cfea8a6176d2f0e6c4aa1e329f697d99d.pnj"
  width="550"
-align="left"/>
+align="center"/>
  <br>
 
 
