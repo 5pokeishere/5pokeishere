@@ -1,4 +1,9 @@
 WORK IN PROGRESS. IM IN HELL. HELP
+
+<h4 align="center">
+<img src="https://64.media.tumblr.com/2dc754b8f6b63706faa9b74e3d43bf48/30a5bba12daef9d3-68/s1280x1920/17ff54c593312d9a7797c02fb53485fd893428f6.gifv"  width="200"/>
+ <br>
+ 
 <p align="center"></strong><br><a href="https://hits.sh/github.com/odyssial/"><img alt="Hits" src="https://hits.sh/github.com/5pokeishere.svg?label=murders&color=4C0D02&labelColor=BF2000"/></a></p>
 
 <h4 align="center">
@@ -68,6 +73,27 @@ $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ t
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
 
 <p align= "left">
- <img src=""
+ <img src="https://i.postimg.cc/wBjnn846/blospa.gif"
   width="50"/>
   <br>
+  <img src="https://64.media.tumblr.com/3dc2d44db3a05ac6953ea9fdf16ed1d0/876b5f67c77e33be-4e/s400x600/ce0514ba84b5301ec4bb0a5455113bf0e48d58a4.gifv"
+ width="550"
+align="center"/>
+ <br>
+ <br>
+ <br>
+<p align="center"> 
+<img src="https://64.media.tumblr.com/912e15fdc6ba2994511937e55b92cdea/3510ce27139da7a9-8d/s1280x1920/0ee0ca9332ecd7d5ab1ca926fd454cb499d60d19.pnj"
+  width="300"/>
+<br>
+<br>
+<h4 align="center">
+creds . kelcair on x⠀, <a href="https://x.com/pufferfisw">pufferfisw</a>⠀, <a href="https://x.com/starfaiinight">starfaiinight</a></sub>
+<br>
+<p align="center"> 
+<img src="https://64.media.tumblr.com/2975a538fdd651b04a0d2c4ebf662d68/a1443c40bfe3c12f-7f/s2048x3072/c64135872d81d031e035c33aee3c57693425ef2c.pnj"
+  width="500"/>
+  <br>
+
+  <h4 align="center">
+  <3
