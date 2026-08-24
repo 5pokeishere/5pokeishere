@@ -38,16 +38,16 @@ align="center"/>
    <img src="https://github.com/5pokeishere/5pokeishere/blob/main/Untitled65_20260823195835.png?raw=true" width="400" align="right"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ She looked at my wrist and she looked at a hundred thousand}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ Wrist so icy, wonder why she like me, bitch, I'm drownin'}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ In water, I just bought a Cuban, dipped it in a fountain}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show, I'm surrounded}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Bust down, bust down, bust down, bust down, bust down,}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bitch, I'm drownin'}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ I just bought a Cuban ring and dipped it in a fountain}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Chain so heavy I feel like I'm holdin' up a mountain}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show, I'm surrounded}}$<br>
-$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ╭──╯ . . . . .}}$</h4>
+<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ She looked at my wrist and she }}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ looked at a hundred thousand}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Wrist so icy, wonder why she like me, }}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bitch, I'm drownin'}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ In water, I just bought a Cuban,}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ dipped it in a fountain}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Everywhere that I go it's a light show,}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ I'm surrounded}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ Bust down, bust down, bust down}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bust down, bust down, bitch, I'm drownin'}}$</h4>
 
 <p align= "right">
  <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"
