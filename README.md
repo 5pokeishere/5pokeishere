@@ -4,7 +4,7 @@ WORK IN PROGRESS. IM IN HELL. HELP
 <img src="https://64.media.tumblr.com/2dc754b8f6b63706faa9b74e3d43bf48/30a5bba12daef9d3-68/s1280x1920/17ff54c593312d9a7797c02fb53485fd893428f6.gifv"  width="200"/>
  <br>
  
-<p align="center"></strong><br><a href="https://hits.sh/github.com/odyssial/"><img alt="Hits" src="https://hits.sh/github.com/5pokeishere.svg?label=murders&color=4C0D02&labelColor=BF2000"/></a></p>
+<p align="center"></strong><br><a href="https://hits.sh/github.com/5pokeishere/"><img alt="Hits" src="https://hits.sh/github.com/5pokeishere.svg?label=murders&color=4C0D02&labelColor=BF2000"/></a></p>
 <br>
 <h4 align="center">
 <img src="https://64.media.tumblr.com/eaf500c3552da09c81a41ed1b7b4b7e8/981e193c1ba2a2e0-71/s540x810/bdbdb844df9655c4e8a943f77c812742450fec29.gifv"  width="500"/>
