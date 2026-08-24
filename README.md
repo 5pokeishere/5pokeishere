@@ -1,4 +1,4 @@
-WORK IN PROGRESS. IM IN HELL. HELP
+
 
 <h4 align="center">
 <img src="https://64.media.tumblr.com/2dc754b8f6b63706faa9b74e3d43bf48/30a5bba12daef9d3-68/s1280x1920/17ff54c593312d9a7797c02fb53485fd893428f6.gifv"  width="200"/>
