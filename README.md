@@ -9,7 +9,7 @@ WORK IN PROGRESS. IM IN HELL. HELP
  align="left"/>
  <br>
 
-<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
+<h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
@@ -33,6 +33,29 @@ align="left"/>
    <img src="https://github.com/5pokeishere/5pokeishere/blob/main/Untitled65_20260823195835.png?raw=true" width="400" align="right"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
 
+<h4 align="right">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
+$\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
+
+<p align= "right">
+ <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"
+  width="50"/>
+  <br>
+<img src="https://64.media.tumblr.com/295d44de6acc893c64ec4dc8382b4671/32fad5e15e5bc854-35/s1280x1920/8bb1d50f36cd91facc6802f1c65eaa5b4f2de183.pnj"
+ width="550"
+align="center"/>
+ <br>
+
+   <img src="https://github.com/5pokeishere/5pokeishere/blob/main/Untitled66_20260823211938.png?raw=true" width="400" align="left"/>
+&nbsp; &nbsp; &nbsp; &nbsp;
+
 <h4 align="left">$\color{#F54927}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
@@ -43,3 +66,8 @@ $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ t
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$<br>
 $\color{#F54927}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ text}}$</h4>
+
+<p align= "left">
+ <img src=""
+  width="50"/>
+  <br>
