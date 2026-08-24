@@ -85,8 +85,6 @@ align="center"/>
 <p align="center"> 
 <img src="https://64.media.tumblr.com/912e15fdc6ba2994511937e55b92cdea/3510ce27139da7a9-8d/s1280x1920/0ee0ca9332ecd7d5ab1ca926fd454cb499d60d19.pnj"
   width="300"/>
-<br>
-<br>
 <h4 align="center">
 creds . kelcair on x⠀, <a href="https://x.com/pufferfisw">pufferfisw</a>⠀, <a href="https://x.com/starfaiinight">starfaiinight</a></sub>
 <br>
